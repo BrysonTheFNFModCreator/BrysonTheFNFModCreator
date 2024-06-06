@@ -1,1 +1,2 @@
-- 👋 Hi, I’m Bryson im making an FNF mod i have ADHD and type shit but ye
+hi bryson the creator of this mod call REVAMPED hehe
+for now its just a mod pack toodles
